@@ -5,7 +5,7 @@
 
 
 
-Hi!! , I am varis  here
+Hi!! , I am varis
 😜😜
 
 
@@ -27,7 +27,7 @@ let me introduce myself 😜🛠
 Mynameis Varis Vipavanich (วาริส วิภาวนิช)
 
 
-I'm 15 years old
+I'm 1ุุุ6 years old
 
 
 in my free time i Reading alot of book about programing and sci-fi about space 
@@ -36,12 +36,8 @@ Creating new robot .
 
 FB:Varis Vipavanich
 
-
 iG:Varis_lasalle40
 
-
 line:varis22521
-
-
 
 ![Untitled-2](https://user-images.githubusercontent.com/63534193/119676041-bdca6900-be67-11eb-8e49-04714b42325b.jpg)
